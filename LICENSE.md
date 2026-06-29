@@ -1,4 +1,4 @@
-# 
+# Élite pancakeswap trading bot plugins for Mac OS | Último pancakeswap trading bot plugins for PC Windows. Featuring comercio de futuros and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
